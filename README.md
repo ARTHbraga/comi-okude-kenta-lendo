@@ -1,0 +1,1 @@
+# comi-okude-kenta-lendo
